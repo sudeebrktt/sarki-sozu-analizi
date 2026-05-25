@@ -1,0 +1,1 @@
+# sarki-sozu-analizi
